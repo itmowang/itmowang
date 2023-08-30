@@ -1,8 +1,8 @@
 ## 你好 ，这里是Mowang ❤
 #### 很高兴见到你 你也在追寻所谓的意义吗！
 
-我的个人邮箱: mw@loli.wang
-我的BLOG： blog.loli.wang
+我的个人邮箱: mw@loli.wang   
+我的BLOG： http://blog.loli.wang   
 
 😡你有进一步行动? 立马添加我的QQ: 1531780018
 
